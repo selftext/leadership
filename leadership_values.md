@@ -1,4 +1,4 @@
-## Leadership Values
+## My Leadership Values
 
 What do I value most?
 
@@ -10,7 +10,7 @@ Intellectual rigor requires curiosity, skepticism, critical self-reflection, and
 
 Compassionate candor requires humility, integrity, empathy, and the courage to speak honestly and plainly.
 
-These values are in service to one another. Without intellectual rigor, compassionate candor may be misdirected or biased. Without compassionate candor, intellectual rigor may be ineffectual or unsympathetic.
+These values are in service to one another. Without intellectual rigor, compassionate candor may be misdirected or biased. Without compassionate candor, intellectual rigor may be ineffectual or uncaring.
 
 These values are also in service to a larger cause: other people. Whether for the people on my team, in the larger organization, or the rest of the world, my ultimate goal is to put these values to work to make things better, for them. I measure my success by the success of others.
 
