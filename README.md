@@ -1,0 +1,2 @@
+# leadership
+Thoughts on leadership.
