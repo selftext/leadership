@@ -12,7 +12,7 @@ Candid speaking requires humility, integrity, empathy, and the courage to speak 
 
 These values are in service to one another. Without rigorous thinking, candid speaking may be misdirected or biased. Without candid speaking, rigorous thinking may be ineffectual or uncaring.
 
-These values are also in service to a larger cause: other people. Whether for the people on my team, in the larger organization, or the rest of the world, my ultimate goal is to put these values to work to make things better, for them. I measure my success by the success of others.
+These values are also in service to a larger cause: other people. Whether for the people on my team, in the larger organization, or the rest of the world, my ultimate goal is to put these values to work to make things better for them. I measure my success by the success of others.
 
 Fostering these values and putting them into practice requires constant diligence. They require careful listening, where I ask more questions than I answer. They require time and energy devoted to challenging my own assumptions. And they require direct, honest communication with the courage to challenge the assumptions of others.
 
